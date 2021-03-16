@@ -6,4 +6,4 @@
 - 📧 email: simphiwengco@gmail.com
 - 📞 tel: +27 81 282 9196 (South Africa)
 
-- On occasion I like to pickup my camera and take wide landscape pictures of beautiful city buildings, natural colors of the earth, up to raw rural mountains and trees.
+- On occasion I like to pickup my camera and take wide landscape pictures of beautiful city buildings, natural colors of the earth, and raw rural mountains and trees.
